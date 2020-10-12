@@ -1,4 +1,4 @@
-### Hi there 👋
+### Не who makes no mistakes, makes nothing 💬
 
 <!--
 **izbagov/izbagov** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
